@@ -1,1 +1,0 @@
-# proekt_IA
